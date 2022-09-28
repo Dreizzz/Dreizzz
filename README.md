@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Dreizzz
+- 👀 I’m a newbie 
+- 💞️ I’m looking to meet people who can help me grow
+- 📫 How to reach me on IG @dreizofficial
